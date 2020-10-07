@@ -1,2 +1,1 @@
-# Okay fine
-Get on the mic
+Làm chả ra cái gì
